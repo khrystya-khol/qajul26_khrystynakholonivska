@@ -1,1 +1,1 @@
-qajul26_khrystynakholonivsk
+qajul26_khrystynakholonivska
